@@ -8,7 +8,7 @@ Group Members:
       700747161
 2. Haripriya Eddala
       700746136
-3. Grandhe Sahithya Vidhya Laxmi
+3. Grandhe Sahitya Vidya Laxmi
       700745900
 4. Sahithi Gunda
       700745560
